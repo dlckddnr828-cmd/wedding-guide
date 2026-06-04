@@ -1,1 +1,1 @@
-# WEDDING-GUIDE
+# wedding-guide
